@@ -1,0 +1,2 @@
+# Rithy
+earning money
